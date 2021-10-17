@@ -8,7 +8,7 @@ Results
 
 The average temperatures for June and December ranged in the lower to mid-70’s with hardly any fluctuation in average temperature between the two months.
 
-The maximum temperatures were both in the mid-80’s for June and December which demonstrated a consistency in high temperature patterns. 
+The maximum temperatures were both in the low to mid-80’s for June and December which demonstrated a consistency in high temperature patterns. 
 
 The minimum temperature of 56 degrees for December showed the greatest difference compared to June’s minimum temperature of 64 degrees and may signal to my investors that December is not conducive to doing business with ice cream or surfing. 
 
